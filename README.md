@@ -2,7 +2,7 @@
 - 👀 to enteressado em assistir peack blinders
 - 🌱 Quero colaborar com os peack blinders
 - 💞️ Jogo de tiro e violencia 
-- 
+- suca bler
 
 <!---
 pablogg885/pablogg885 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
